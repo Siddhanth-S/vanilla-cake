@@ -1,0 +1,1 @@
+It's a soft vanilla cake. The recipe serves four people and is very tasty. Made in an oven.
